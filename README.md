@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning computer design and architecture.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ,please contact with this account.
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: a swimmer,a colledge student,a man to higher goals.
+- ⚡ Fun fact: Really Like A cartoon called *Seabows*(星游记).
 
 <!---
 090lonely/090lonely is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
