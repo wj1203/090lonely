@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning computer design and architecture.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ,please contact with this account.
-- 😄 Pronouns: a swimmer,a colledge student,a man to higher goals.
+- 😄 Pronouns: they
 - ⚡ Fun fact: Really Like A cartoon called *Seabows*(星游记).
 
 <!---
